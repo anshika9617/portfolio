@@ -1,1 +1,0 @@
-# ami-doshi.github.io
